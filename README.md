@@ -1,0 +1,1 @@
+# Cota-o-do-D-lar-
